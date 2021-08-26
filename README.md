@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @soficatXO
 - 👀 I’m interested in ... music, books, movies and lil cats
 - 🌱 I’m currently learning ... new languages 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... find new people to share good music
 - 📫 How to reach me ... my instagram is @fifia_gois
 
 <!---
